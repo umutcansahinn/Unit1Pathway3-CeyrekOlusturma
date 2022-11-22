@@ -1,1 +1,1 @@
-# Unit1Pathway3-CeyrekOlusturma![ceyrek](https://user-images.githubusercontent.com/66000826/203187087-048bcbf3-4309-494d-b05a-b012ce747171.PNG)
+![ceyrek](https://user-images.githubusercontent.com/66000826/203187148-86121b60-4058-47e1-9db8-d0f497e4e24a.PNG)
